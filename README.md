@@ -1,1 +1,1 @@
-https://kerocomino.github.io/tinnitus
+https://kerocomino.github.io/OminoJoy
